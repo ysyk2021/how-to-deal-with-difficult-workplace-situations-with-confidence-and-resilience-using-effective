@@ -1,5 +1,3 @@
-Chapter 6: Building a Support System
-====================================
 
 Building a support system is essential for coping with difficult workplace situations. In this chapter, we will discuss the role of building a support system in coping with difficult workplace situations, strategies for building a support system, and using mentorship and peer support networks.
 

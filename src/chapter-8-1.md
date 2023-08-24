@@ -1,5 +1,3 @@
-The Importance of Addressing Conflict and Navigating Change in Difficult Workplace Situations
-===================================================================================================================================================
 
 Addressing conflict and navigating change are critical skills for managing difficult workplace situations. In this chapter, we will discuss the importance of addressing conflict and navigating change, effective strategies for doing so, and how to develop these skills.
 

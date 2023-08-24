@@ -1,5 +1,3 @@
-Using Self-Awareness and Emotional Intelligence Techniques
-=============================================================================================================
 
 Identifying triggers and warning signs is critical for managing difficult workplace situations. In this chapter, we will discuss effective self-awareness and emotional intelligence techniques for identifying triggers and warning signs.
 

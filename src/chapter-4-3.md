@@ -1,5 +1,3 @@
-Using Mindfulness and Relaxation Techniques
-===================================================================================================
 
 Using mindfulness and relaxation techniques is an effective way to manage stress and build resilience in the workplace. In this chapter, we will discuss the benefits of mindfulness and relaxation techniques, common techniques to consider, and how to incorporate them into daily routines.
 

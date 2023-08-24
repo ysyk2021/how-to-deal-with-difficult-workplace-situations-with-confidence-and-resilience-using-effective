@@ -1,5 +1,3 @@
-Chapter 9: Measuring Coping Success
-===================================
 
 Measuring coping success is essential for evaluating the effectiveness of coping strategies and making adjustments as needed. In this chapter, we will discuss methods for measuring coping success, analyzing personal and team resilience data and KPIs, and adjusting coping strategies based on feedback.
 

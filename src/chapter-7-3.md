@@ -1,5 +1,3 @@
-Using Time-Management and Work-Life Balance Techniques
-==============================================================================================
 
 Managing stress and burnout is critical for maintaining productivity and well-being in the workplace. In this chapter, we will discuss effective time-management and work-life balance techniques for managing stress and preventing burnout.
 

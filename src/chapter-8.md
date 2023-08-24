@@ -1,5 +1,3 @@
-Chapter 8: Addressing Conflict and Navigating Change
-====================================================
 
 Addressing conflict and navigating change are essential skills for dealing with difficult workplace situations. In this chapter, we will discuss the importance of addressing conflict and navigating change in difficult workplace situations, strategies for addressing conflict and navigating change, and using conflict resolution and change management frameworks.
 

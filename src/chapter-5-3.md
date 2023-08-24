@@ -1,5 +1,3 @@
-Using Active Listening and Assertiveness Techniques
-===================================================================================================================
 
 Effective communication is essential for navigating challenging workplace situations with confidence and resilience. In this chapter, we'll focus on specific techniques for effective communication, including active listening and assertiveness.
 

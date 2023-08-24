@@ -1,5 +1,3 @@
-Strategies for Addressing Conflict and Navigating Change
-==============================================================================================================
 
 Addressing conflict and navigating change are essential skills for managing difficult workplace situations. In this chapter, we will discuss effective strategies for addressing conflict and navigating change, including communication techniques, problem-solving approaches, and how to manage emotions during challenging situations.
 

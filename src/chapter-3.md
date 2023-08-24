@@ -1,5 +1,3 @@
-Chapter 3: Identifying Triggers and Warning Signs
-=================================================
 
 Identifying triggers and warning signs is critical for effectively managing difficult workplace situations. In this chapter, we will discuss the importance of identifying triggers and warning signs in difficult workplace situations, strategies for identifying triggers and warning signs, and using self-awareness and emotional intelligence techniques.
 

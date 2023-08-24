@@ -1,5 +1,3 @@
-The Role of Building a Support System in Coping with Difficult Workplace Situations
-=========================================================================================================================
 
 Building a support system is critical for managing difficult workplace situations. In this chapter, we will discuss the importance of building a support system, types of support systems to consider, and how to develop a support system.
 

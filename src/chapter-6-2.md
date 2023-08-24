@@ -1,5 +1,3 @@
-Strategies for Building a Support System
-==============================================================================
 
 Building a support system is critical for managing difficult workplace situations. In this chapter, we will discuss effective strategies for building a support system, including identifying personal needs, building relationships, and seeking out professional development programs.
 

@@ -1,5 +1,3 @@
-Chapter 7: Managing Stress and Burnout
-======================================
 
 Dealing with difficult workplace situations can be a significant source of stress and burnout. In order to maintain your confidence and resilience in the face of these challenges, it's important to develop effective strategies for managing stress and preventing burnout. In this chapter, we'll explore the importance of managing stress and burnout, strategies for doing so, and techniques for time-management and work-life balance.
 

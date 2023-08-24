@@ -1,5 +1,3 @@
-Strategies for Managing Stress and Burnout
-==================================================================================
 
 Managing stress and burnout is critical for maintaining productivity and well-being in the workplace. In this chapter, we will discuss effective strategies for managing stress and burnout, including self-care, time-management, and seeking support.
 

@@ -1,5 +1,3 @@
-Using Conflict Resolution and Change Management Frameworks
-================================================================================================================
 
 Addressing conflict and navigating change are important skills for success in the workplace. In this chapter, we'll explore conflict resolution and change management frameworks to help individuals effectively handle difficult workplace situations.
 

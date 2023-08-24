@@ -1,5 +1,3 @@
-Using Mentorship and Peer Support Networks
-================================================================================
 
 Building a support system is essential for dealing with difficult workplace situations with confidence and resilience. In this chapter, we will discuss the benefits of mentorship and peer support networks and strategies for building and utilizing them effectively.
 
