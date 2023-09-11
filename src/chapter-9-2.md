@@ -1,5 +1,4 @@
-Chapter 10: Analyzing Personal and Team Resilience Data and KPIs
-================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of analyzing personal and team resilience data and Key Performance Indicators (KPIs) in dealing with difficult workplace situations. By measuring and assessing resilience at both an individual and team level, you can identify areas for improvement, track progress, and implement effective strategies to enhance overall resilience.
 

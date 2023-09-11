@@ -1,5 +1,4 @@
-Chapter 8: Strategies for Managing Stress and Burnout
-=====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies for managing stress and burnout in the workplace. Stress and burnout can have detrimental effects on your well-being, productivity, and overall satisfaction with your job. By implementing these strategies, you can build resilience, maintain a healthy work-life balance, and effectively navigate difficult workplace situations.
 

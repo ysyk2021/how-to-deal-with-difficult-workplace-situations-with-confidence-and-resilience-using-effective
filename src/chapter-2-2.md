@@ -1,5 +1,4 @@
-Chapter 2: The Impact of Difficult Workplace Situations on Personal and Professional Development
-================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the profound impact that difficult workplace situations can have on personal and professional development. Understanding how these challenges affect individuals allows us to develop effective strategies to overcome them and grow stronger in the process.
 

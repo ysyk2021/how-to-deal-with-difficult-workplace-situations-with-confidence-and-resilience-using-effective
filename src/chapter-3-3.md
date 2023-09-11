@@ -1,5 +1,4 @@
-Chapter 9: Using Self-Awareness and Emotional Intelligence Techniques
-=====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore how self-awareness and emotional intelligence techniques can help you navigate difficult workplace situations with confidence and resilience. Developing self-awareness and emotional intelligence is essential for understanding and managing your own emotions as well as effectively interacting with others in a professional setting. By implementing these strategies, you can improve your decision-making, communication, and overall workplace relationships.
 

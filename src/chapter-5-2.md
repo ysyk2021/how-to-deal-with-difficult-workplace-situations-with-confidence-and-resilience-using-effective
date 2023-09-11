@@ -1,5 +1,4 @@
-Chapter 7: Strategies for Communicating Effectively in Challenging Situations
-=============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for effective communication in challenging workplace situations. Effective communication plays a vital role in resolving conflicts, building relationships, and navigating difficult conversations with confidence and resilience. By implementing these strategies, you can enhance your communication skills and successfully navigate challenging scenarios.
 

@@ -1,5 +1,4 @@
-Chapter 9: Strategies for Identifying Triggers and Warning Signs
-================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies for identifying triggers and warning signs in difficult workplace situations. Being able to recognize these triggers and warning signs is crucial for maintaining your composure, managing your emotions, and responding appropriately. By utilizing these strategies, you can cultivate self-awareness and proactively address challenging situations with confidence and resilience.
 

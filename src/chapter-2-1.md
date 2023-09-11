@@ -1,5 +1,4 @@
-Chapter 1: Definition of Difficult Workplace Situations
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the definition of difficult workplace situations and understand the various challenges that individuals may encounter in their professional lives. By gaining clarity on what constitutes a difficult workplace situation, individuals can better prepare themselves to cope with and navigate such circumstances effectively.
 

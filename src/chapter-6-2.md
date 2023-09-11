@@ -1,5 +1,4 @@
-Chapter 7: Strategies for Building a Support System
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies and techniques for building a support system in the workplace. Having a strong support system is crucial for navigating difficult workplace situations with confidence and resilience. It provides emotional support, guidance, and a sense of belonging, which can significantly contribute to your overall well-being and success. Here are some strategies to help you build a robust support system:
 

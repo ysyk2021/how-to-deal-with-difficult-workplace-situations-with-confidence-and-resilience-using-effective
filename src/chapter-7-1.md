@@ -1,5 +1,4 @@
-Chapter 6: The Importance of Managing Stress and Burnout in Difficult Workplace Situations
-==========================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significance of effectively managing stress and burnout when facing challenging workplace situations. We will discuss the impact of stress on our well-being, productivity, and relationships, as well as provide practical strategies and techniques to promote resilience and maintain a healthy work-life balance.
 

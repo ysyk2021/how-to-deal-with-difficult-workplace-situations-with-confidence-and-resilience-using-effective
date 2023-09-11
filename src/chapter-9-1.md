@@ -1,5 +1,4 @@
-Chapter 10: Methods for Measuring Coping Success
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore various methods for measuring coping success in difficult workplace situations. It's important to assess and evaluate the effectiveness of your coping strategies to ensure that you are effectively managing stress, maintaining resilience, and achieving positive outcomes. By utilizing these methods, you can gain valuable insights into your progress and make adjustments as needed to enhance your coping skills.
 

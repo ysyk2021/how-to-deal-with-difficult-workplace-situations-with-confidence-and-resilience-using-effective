@@ -1,5 +1,4 @@
-Chapter 5: Using Active Listening and Assertiveness Techniques
-==============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of active listening and assertiveness techniques as effective strategies for dealing with difficult workplace situations. These communication skills are invaluable tools that can help build rapport, resolve conflicts, and enhance personal and professional relationships.
 

@@ -1,5 +1,4 @@
-Chapter 11: Using Conflict Resolution and Change Management Frameworks
-======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of using conflict resolution and change management frameworks in dealing with difficult workplace situations. Conflict and change are natural occurrences in any organization, and being equipped with effective strategies and techniques to navigate them is essential for maintaining confidence and resilience.
 
